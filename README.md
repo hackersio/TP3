@@ -1,1 +1,0 @@
-# SIO1_B1_GitEquipe
